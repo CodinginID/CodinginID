@@ -21,7 +21,7 @@ Here are some of the projects I've worked on:
 
 ## 📫 How to reach me
 - **Email:** idcodingin@gmail.com
-- **LinkedIn:** [CodinginID](soon)
+- **LinkedIn:** [CodinginID](https://www.linkedin.com/in/muhammad-ali-bakhtiar-3a9935182/)
 - **Twitter:** [@CodinginID](soon)
 
 ## ⚡ Fun Fact
